@@ -1,4 +1,4 @@
-# Appropriating New Technologies
+# Appropriating New Custard
 **Friday 9:30 am to 12:00 pm, Spring 2012**
 
 ## Course Description
